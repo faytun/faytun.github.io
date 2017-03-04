@@ -2,7 +2,7 @@
 
 Những công cụ miễn phí bạn có thể sử dụng tại [FAYTUN](https://faytun.net).
 
-Tham gia nhóm để được hỗ trợ và nhận thông báo mới nhất về các tính năng trên website ! [Faytun - Công Cụ Facebook](https://www.facebook.com/groups/479240542465446/).
+Tham gia nhóm để được hỗ trợ và nhận thông báo mới nhất về các tính năng trên website [Faytun - Công Cụ Facebook](https://www.facebook.com/groups/479240542465446/).
 
 ### Markdown
 
