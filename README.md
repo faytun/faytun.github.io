@@ -10,7 +10,7 @@ Tham gia nhóm để được hỗ trợ và nhận thông báo mới nhất v�
 - [Giới Thiệu](README.md)
 - [Nhóm Trên Facebook](https://www.facebook.com/groups/479240542465446/)
 
-#### List Công Cụ Facebook Miễn Phí
+### List Công Cụ Facebook Miễn Phí
 
 - [Tìm kiếm bài viết siêu tốc](http://www.j2teamdata.tk/) bởi [Long Đỗ](https://www.facebook.com/groups/j2team.community/permalink/418245055174287/)
 - [Index bài viết trong nhóm](http://phimchua.com/fb/) bởi [Vinh Chương](https://www.facebook.com/groups/j2team.community/permalink/420339644964828/)
